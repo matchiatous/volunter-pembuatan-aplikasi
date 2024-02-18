@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandi, [oo.or.id](https://oo.or.id).
+* Lee Jeno, [Instagram](https://www.instagram.com/leejen_o_423)
